@@ -11,4 +11,5 @@ and much more to customize your gameplay!
 Whether you're looking to dominate, grind, or unleash your creativity, 💻 OMEN HUB has the scripts you need. Join our community of Roblox Hacking and take your gaming to new heights! 🚀
 
 Over 30+ GAMES
+
 discord.gg/omenhub
